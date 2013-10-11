@@ -1,6 +1,6 @@
 | Middle English | Translation   |
 | ---------------| ------------- |
-| Adam lay ibowndyn,  bowndyn in a bond,       | Adam lay bound, |
+| Adam lay ibowndyn,<br/>bowndyn in a bond,       | Adam lay bound, |
 | bowndyn in a bond,      | bound in a bond,     |
 | Fowre thowsand wynter  | Four thousand winters      |  
 | thowt he not to long; | thought not too long; |
