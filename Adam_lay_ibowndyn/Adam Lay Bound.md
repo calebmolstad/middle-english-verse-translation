@@ -1,0 +1,17 @@
+Adam lay bound,
+Bound in a bond,
+Four thousand winters 
+He thought not too long;
+And all was for an apple, 
+An apple that he took,
+As clerks find written 
+In the Book.
+
+Never had the apple taken been, 
+The apple taken been,
+Never ever had our lady 
+Have been queen of heaven.
+Blessed be the day 
+The apple was taken,
+Therefore we might say, 
+"Deo gracias!!"
