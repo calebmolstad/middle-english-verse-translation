@@ -13,5 +13,5 @@ Murie sing, cuccu!<br/>
 Cuccu, cuccu,<br/>
 Wel singes thu, cuccu;<br/>
 Ne swic thu naver nu.<br/>
-*Sing, cuccu, nu; sing, cuccu;*
+*Sing, cuccu, nu; sing, cuccu;*<br/>
 *Sing, cuccu, nu; sing, cuccu;*
