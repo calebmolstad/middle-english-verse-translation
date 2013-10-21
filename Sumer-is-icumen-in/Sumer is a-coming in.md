@@ -1,4 +1,4 @@
-###Summer is A-coming In 
+###Summer is a-Coming In 
 Summer is a-coming in, <br/>
 Loudly sing, cuckoo! <br/>
 And springs forth the wood now.<br/>
