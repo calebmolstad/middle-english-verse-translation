@@ -1,17 +1,17 @@
 ###Sumer is icumen in
-Sumer is icumen in,
-Lhude sing, cuccu;
-Groweth sed
-and bloweth med,
-And springth the wde nu;
-Sing, cuccu!
-Awe bleteth after lomb,
-Lhouth after calue cu;
-Bulluc sterteth,
-Bucke uerteth,
-Murie sing, cuccu!
-Cuccu, cuccu,
-Wel singes thu, cuccu;
-Ne swic thu naver nu.
+Sumer is icumen in,<br/>
+Lhude sing, cuccu;<br/>
+Groweth sed<br/>
+and bloweth med,<br/>
+And springth the wde nu;<br/>
+Sing, cuccu!<br/>
+Awe bleteth after lomb,<br/>
+Lhouth after calue cu;<br/>
+Bulluc sterteth,<br/>
+Bucke uerteth,<br/>
+Murie sing, cuccu!<br/>
+Cuccu, cuccu,<br/>
+Wel singes thu, cuccu;<br/>
+Ne swic thu naver nu.<br/>
 *Sing, cuccu, nu; sing, cuccu;*
 *Sing, cuccu, nu; sing, cuccu;*
